@@ -1,0 +1,2 @@
+# P-jtongyak
+Gyakorlunk, tesómsz.
